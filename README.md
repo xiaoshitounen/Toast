@@ -1,3 +1,3 @@
 # Toast
 
-博客：[Toast](https://fanandjiu.com/Toast/)
+博客：[Toast](http://www.fanandjiu.com/article/758bb0a6.html)
